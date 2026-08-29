@@ -1,2 +1,2 @@
-# Perfect-Day
-A perfect day :3
+# Perfect Day!
+How two have THE perfecet-est day :3
