@@ -1,2 +1,2 @@
 # Perfect Day!
-How two have THE perfecet-est day :3
+How two have THE perfect-est day :3
